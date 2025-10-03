@@ -1,5 +1,5 @@
 ![cr: steinspirit on twt](https://file.garden/aKEe1WsXeEL-vAnJ/tenna2)
-![badge](https://img.shields.io/badge/plush-%E2%99%A1-lightpink?style=plastic&labelColor=lightblue) ⸺ JOKE or jokemail 🩷 she/he/its
+![badge](https://img.shields.io/badge/plush-%E2%99%A1-lightpink?style=plastic&labelColor=lightblue) ⸺ JOKE or jokemail 🩷 she/he/its ![life is a bitch & so am i](https://64.media.tumblr.com/8dfc7ea1189c42c7e12289af3155faeb/2a25a5e1abd64440-6b/s250x400/fcdcb3167863c1238654d004c09b35bc8c32eea9.gifv)
 
 here for fun..! im bad at wording myself & suck at talking.. sorry if i am awkward..!
 
